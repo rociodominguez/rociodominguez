@@ -8,4 +8,4 @@
 
 ❤ I love to travel to eat delicious things, my cat Dharma and photography.
 
-✨My mantra is: always on the moving, always improving.✨
+✨My mantra is: always moving, always improving.✨
