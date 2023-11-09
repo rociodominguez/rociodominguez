@@ -1,11 +1,11 @@
-### Hello devs! Rocío here 👋
+### Hello devs and recruiters! Rocío here 👋
 
-🚀 I'm currently studying full stack web development at Rock{theCode}
+🚀 I'm currently studying full stack web development
 
 🌎 I live in Seville, Spain
 
-👩‍💻 I'm looking for a job as an intern to improve my development skills, not necessarily in Seville though.
+👩‍💻 I'm looking for a job as a trainee to improve my development skills, not necessarily in Seville
 
-❤ I love to travel to eat delicious things, my cat Dharma and photography.
+❤ I love thrillers, TV series, my cat Dharma and photography
 
-✨My mantra is: always moving, always improving.✨
+✨My mantra: always moving, always improving✨
